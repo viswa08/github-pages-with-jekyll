@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Viswa Blog
 
-I'm glad you are here. I plan to talk about ...
+Let's think in the way of science and empathy for a better world!.
